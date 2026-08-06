@@ -1,4 +1,4 @@
-![image alt](https://i.imgur.com/sniRaDu.jpeg)
+
 ![image alt](https://i.imgur.com/EfLJJlH.gif)
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
