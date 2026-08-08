@@ -2,7 +2,7 @@
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-![profileviews](https://komarev.com/ghpvc/?username=dihlila&color=b09fc3)
+![profileviews](https://komarev.com/ghpvc/?username=dihlila&color=70656B)
 
 ‧˚꒰🐾୭ ˚. ᵎᵎ݁ ˖Ი𐑼⋆
 
