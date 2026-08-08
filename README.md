@@ -2,6 +2,8 @@
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
+![profileviews](https://komarev.com/ghpvc/?username=dihlila&color=b09fc3)
+
 ‧˚꒰🐾୭ ˚. ᵎᵎ݁ ˖Ი𐑼⋆
 
 𝒔𝒍𝒐𝒘 𝒅𝒂𝒏𝒄𝒊𝒏𝒈 - , 𝑽
